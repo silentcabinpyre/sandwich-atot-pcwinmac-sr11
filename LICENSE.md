@@ -1,4 +1,4 @@
-# 
+# Melhor sandwich attack bot ferramentas para Mac OS | Novo sandwich attack bot ferramentas para PC Windows. Com proteção contra front-running e monitoramento de transações — otimizado para máximo desempeño en cada plataforma.
 
 
 
